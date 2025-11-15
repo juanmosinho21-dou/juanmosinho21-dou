@@ -2,5 +2,5 @@
 
 - 🔭 Atualmente trabalho com finanças
 - 💬 Contate-me co email - juanmosinho21@gmail.com
-- 💬 Estudanto - Economia
+- 💬 Estudando - Economia
 - ⚡ www.linkedin.com/in/juandoudement
